@@ -1,1 +1,0 @@
-# Thank-you-Kichi-Kichi-Nguyen-Son-
